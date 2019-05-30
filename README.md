@@ -1,3 +1,3 @@
 # hello-world
-just for fun
-the lovers survive and flourish.
+只为.
+恋人生存和繁荣
